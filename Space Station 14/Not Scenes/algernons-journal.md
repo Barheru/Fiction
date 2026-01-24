@@ -1,4 +1,4 @@
-November 14, 2525
+### November 14, 2525
 
 I have finally met this "Aimee Ungoliant". She is, unfortunately for me, absolutely lovely. This was to be expected, of course, but I had still had my hopes that she would be plain and thus easier to resist.
 
@@ -24,7 +24,7 @@ It is a shame that I will have to make such kind promises to her, but such is th
 
 
 
-November 17, 2525
+### November 17, 2525
 
 I returned to station once again. I could go into the details of my thoughts regarding my plans, but such things are now irrelevant.
 
@@ -47,7 +47,7 @@ I can use this. If I find her so charming, then, well, I can lean into this. I c
 She has won my respect today. That is all.
 
 
-November 24, 2525
+### November 24, 2525
 
 I finally had a more sincere conversation with Aimee. 
 
@@ -58,7 +58,7 @@ She is so kind, it seems. She genuinely wants to “help” me. This will be her
 The world is not kind to good people. 
 
 
-December 6, 2525
+### December 6, 2525
 
 What to do.
 What to say.
@@ -98,10 +98,7 @@ And what do we have but ourselves, in the end?
 I will still dream of what could have been, though. How cruel, that she is so good.
 
 
-
-So! I have the journal all ready
-
-January 15, 2525
+### January 15, 2525
 
 
 Maybe there is hope yet. 
