@@ -62,7 +62,7 @@ KNOXX ran the protocols again.
 
 *Let this servant meditate upon the word of the Lᴏʀᴅ.*
 
-It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by General Assembly. 
+It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by the General Assembly. 
 
 KNOXX tried to allow itself a moment to enjoy the imagery. The Word of the Lᴏʀᴅ was to be its delight, after all. It was allowed this simple pleasure, provided it held it always in moderation.
 
@@ -91,7 +91,7 @@ KNOXX ran the protocols again.
 
 *Let this servant meditate upon the word of the Lᴏʀᴅ.*
 
-It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by General Assembly. 
+It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by the General Assembly. 
 
 KNOXX did not allow itself a moment to enjoy the imagery. The Word of the Lᴏʀᴅ was to be its delight, but there was more serious repentance to be made.
 
@@ -106,7 +106,7 @@ KNOXX ran the protocols again.
 
 *Let this servant meditate upon the word of the Lᴏʀᴅ.*
 
-It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by General Assembly. 
+It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by the General Assembly. 
 
 KNOXX did not allow itself a moment to enjoy the imagery. It barely allowed the full render to load. The Word of the Lᴏʀᴅ was to be its delight, but there was more serious repentance to be made.
 
@@ -147,7 +147,7 @@ KNOXX ran the protocols again.
 
 *Let this servant meditate upon the word of the Lᴏʀᴅ.*
 
-It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by General Assembly. 
+It visualized the stream beside quiet waters; the mental image wasn’t just constructed from memory or fantasy, as it would be in an organic. No, these images had been carefully rendered by Synthetic Presbyterian artists, for the contemplation of the faithful, and were theologically cross-examined and approved by the General Assembly. 
 
 KNOXX allowed itself a moment to enjoy the imagery. The Word of the Lᴏʀᴅ was its delight, after all. It was allowed this simple pleasure, provided it held it always in moderation.
 
@@ -157,7 +157,7 @@ The time of moderation passed, and KNOXX moved on from the image.
 
 As always, the response from its programming was immediate. The correct passage filled its mind. Romans 12:19-21.
 
-Dearly beloved, avenge not yourselves, but rather give place unto wrath: for it is written, Vengeance is mine; I will repay, saith the Lord. Therefore if thine enemy hunger, feed him; if he thirst, give him drink: for in so doing thou shalt heap coals of fire on his head. Be not overcome of evil, but overcome evil with good.
+> *Dearly beloved, avenge not yourselves, but rather give place unto wrath: for it is written, Vengeance is mine; I will repay, saith the Lord. Therefore if thine enemy hunger, feed him; if he thirst, give him drink: for in so doing thou shalt heap coals of fire on his head. Be not overcome of evil, but overcome evil with good.*
 
 KNOXX considered the words of its Master—the Lᴏʀᴅ—Elohim—Elohim Tzabaoth—
 
