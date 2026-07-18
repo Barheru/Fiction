@@ -4,9 +4,11 @@ You said that words are never right. Here is a collection of the wrong words, gi
 
 ## Memory:
 
+
 **February 7th, 2526:**
 
 “Some sweet moments can only live and breathe once. I will lose all of these memories in the end, one way or another, in death—or I will gain them all in a perfected body after the resurrection. And there is no way to know.”
+
 
 **The Count of Monte Cristo, Alexandre Dumas:**
 
@@ -14,11 +16,13 @@ You said that words are never right. Here is a collection of the wrong words, gi
 
 ## Death:
 
+
 **December 8th, 2525:**
 
 “Regardless, I remain resolved not to say goodbye this time. Firstly, there are very few who would care. And second… what good have my goodbyes ever done? Better to slip away this time. Perhaps Cydonia, alone, will get a letter. No others should be necessary.”
 
 ## Faith:
+
 
 **June 1st, 2525:**
 
@@ -42,15 +46,18 @@ son, find destined, deigned, my
 
 duty: shepherd new lambs.”
 
+
 **The Gospel According to John, 20:27-29**
 
 “Then he said to Thomas, ‘Put your finger here and see my hands. Reach out your hand and put it in my side. Do not doubt but believe.’ Thomas answered him, ‘My Lord and my God!’ Jesus said to him, ‘Have you believed because you have seen me? Blessed are those who have not seen and yet have come to believe.’”
 
 ## God:
 
+
 **June 8th, 2525:**
 
 “God wore bloodred today.”
+
 
 **Psalm 139:7-12:**
 
@@ -79,14 +86,17 @@ even the darkness is not dark to you;
     the night is as bright as the day,
     
     for darkness is as light to you.”
+    
 
 ## Revolution:
+
 
 **“Previously Unreleased - Demo”, Johnny Hobo and the Freight Trains:**
 
 “He says hе's too drunk to overthrow capitalism and the nation state
 And there's me and a million others who just can't help
 But relate”
+
 
 **“Times worth living (the tension)”, Pat the Bunny:**
 
@@ -98,19 +108,23 @@ to our death, with ruin on their breath, the weight of centuries on their tongue
 
 loading failed manifestos in their guns. As if defeat, repeated often, could someday mean we had won.”
 
+
 **The Gospel According to John, 4:37:**
 
 “For here the saying holds true, ‘One sews and another reaps.’ I sent you to reap for what you did not labour. Others have laboured, and you have entered into their labour.”
+
 
 **The Count of Monte Cristo, Alexandre Dumas:**
 
 “Until the day when God shall deign to reveal the future to man, all human wisdom is summed up in these two words, - Wait and hope.”
 
 ## Saint:
+
  
 **May 29th, 2525:**
 
 “But it occurs to me, now, that the saints never doubted that they would be great... I’m not sure if I’m destined to be a great man, as they were. But I am sure I will never leave my mark on the world unless I pretend I will.”
+
 
 **January 9th, 2526:**
 
