@@ -55,17 +55,29 @@ duty: shepherd new lambs.”
 **Psalm 139:7-12:**
 
 “Where can I go from your spirit?
+
     Or where can I flee from your presence?
+    
 If I ascend to heaven, you are there;
+
     if I make my bed in Sheol, you are there.
+    
 If I take the wings of the morning
+
     and settle at the farthest limits of the sea,
+    
 even there your hand shall lead me,
+
     and your right hand shall hold me fast.
+    
 If I say, ‘Surely the darkness shall cover me,
+
     and the light around me become night’,
+    
 even the darkness is not dark to you;
+
     the night is as bright as the day,
+    
     for darkness is as light to you.”
 
 ## Revolution:
