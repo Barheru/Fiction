@@ -111,7 +111,7 @@ loading failed manifestos in their guns. As if defeat, repeated often, could som
 
 **The Gospel According to John, 4:37:**
 
-“For here the saying holds true, ‘One sews and another reaps.’ I sent you to reap for what you did not labour. Others have laboured, and you have entered into their labour.”
+“For here the saying holds true, ‘One sows and another reaps.’ I sent you to reap for what you did not labour. Others have laboured, and you have entered into their labour.”
 
 
 **The Count of Monte Cristo, Alexandre Dumas:**
