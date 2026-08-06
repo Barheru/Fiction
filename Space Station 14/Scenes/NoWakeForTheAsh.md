@@ -8,7 +8,7 @@ She checks over the records, then looks back at the body in the bag in shock.
 
 It’s burned. Not just singed—charred. The skin is blackened. Sections of it slough off, revealing flesh that is fully blackened underneath. In several places, the bones themselves are visible; they, too, are blackened, as if they had been in a fire pit.
 
-He looks like he’s already been partially cremated.
+He looks like he’s already been incompletely cremated.
 
 She swallows hard. She just—she’ll just report this in the system. Someone back at that station—Hestia Galactic Incorporated, was it?—someone there must have made a mistake in the damage type on the report. That’s—that’s the only explanation.
 
