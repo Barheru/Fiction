@@ -136,7 +136,7 @@ Declan’s lip twitches again.
 
 “Maybe. Why?”
 
-“I prefer to keep my hands busy when I have to say hard things.” He holds out his cuffed wrists and jingles the links between them. “So. Did you bring the card, Falker?”
+“I prefer to keep my hands busy when I have to say hard things.” He holds out his cuffed wrists and jingles the links between them. “So. Did you bring the cards, Falker?”
 
 Declan’s lip twitches into that smile again for a brief moment. 
 
